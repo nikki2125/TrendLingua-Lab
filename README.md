@@ -59,6 +59,11 @@ Nicole:
 
 -La llegada de la tercera revolución incorporó los computadores y los datos, permitiendo segmentar mercados y conocer mejor a los consumidores <br>
 
+-Con la cuarta revolución llegaron las redes sociales, el comercio electrónico, el big data y la inteligencia artificial, haciendo el mercadeo más digital y personalizado <br>
+
+-imagino una quinta revolución impulsada por la inteligencia artificial, donde la tecnología pueda analizar datos, identificar tendencias y anticipar las necesidades de los consumidores.
+esto no significa reemplazar al profesional de mercadeo, sino trabajar junto a la IA para enfocarnos más en la creatividad, la estrategia y la conexión con las personas <br> 
+
 
 
 
