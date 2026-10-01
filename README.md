@@ -64,15 +64,42 @@ Actualmente se puede conocer mejor al consumidor, las redes sociales, los smartp
 
 
 
+mercadeo y estrategia comercial <br>
 
+Plano 01 - Primera Revolución Industrial <br>
 
-Mercadeo y estrategia comercial <br>
+Nicole: <br>
+“En la primera revolución industrial, la máquina de vapor permitió pasar de los talleres artesanales a las fábricas. Sin embargo, el mercadeo todavía no existía como profesión, ya que la prioridad era producir en grandes cantidades y satisfacer la demanda.” <br>
+
+Plano 02 - Segunda Revolución Industrial <br>
+
+Nicole: <br>
+“Con la llegada de la electricidad y la producción en masa, aumentó la competencia entre empresas. Por eso surgió la necesidad de diferenciar los productos y atraer consumidores, dando mayor importancia a la publicidad y a las estrategias comerciales.” <br>
+
+Plano 03 - Tercera Revolución Industrial <br>
+
+Nicole: <br>
+“La tercera revolución trajo los computadores y la tecnología de la información. En mercadeo, esto permitió almacenar y analizar datos, segmentar los mercados y conocer mejor las necesidades y comportamientos de los consumidores.” <br>
+
+Plano 04 - Cuarta Revolución Industrial <br>
+
+Nicole: <br>
+“Con la cuarta revolución llegaron las redes sociales, el comercio electrónico, el Big Data y la inteligencia artificial. El mercadeo se volvió más digital, rápido y personalizado, permitiendo que las empresas se conectaran directamente con sus consumidores.” <br>
+
+Plano 05 - Quinta Revolución – La colaboración entre humanos e IA <br>
+
 Nicole:
--En la primera revolución industrial la máquina de vapor permitió pasar de los talleres a las fábricas, pero el mercadeo aún no existía como profesión <br>
+“Imagino una quinta revolución impulsada por la inteligencia artificial, donde la tecnología y el profesional de mercadeo trabajen de manera conjunta. ¿Qué la provoca? La necesidad de entender mejor a los consumidores y crear experiencias cada vez más personalizadas.” <br>
 
--Con la electricidad y la producción en masa, aumentó la competencia y surgió la necesidad de diferenciar los productos con publicidad <br>
+Plano 06 - Quinta Revolución (Tecnología en Mercadeo) – Inteligencia artificial y predicción <br>
 
--La llegada de la tercera revolución incorporó los computadores y los datos, permitiendo segmentar mercados y conocer mejor a los consumidores <br>
+Nicole: <br>
+“¿Qué tecnología la sostiene? La inteligencia artificial, el análisis predictivo y los sistemas capaces de procesar grandes cantidades de datos. Estas herramientas pueden identificar tendencias, anticipar necesidades y ayudar a las empresas a tomar decisiones más estratégicas.” <br>
+
+Plano 07 - El nuevo profesional de mercadeo <br>
+
+Nicole: <br>
+“ El profesional de mercadeo no será reemplazado por la inteligencia artificial, sino que trabajará junto a ella. La tecnología se encargará de analizar información, mientras nosotros podremos enfocarnos más en la creatividad, la estrategia y, sobre todo, en la conexión con las personas.” <br>
 
 
 
